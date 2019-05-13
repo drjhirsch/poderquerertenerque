@@ -6,7 +6,7 @@
 
 Ejercicios para practicar el uso de los verbos ser, estar y hay.
 <br>
-Ejercicio 1: Pregunta por el código para jugar el kahoot de los verbos modales.
+Ejercicio 1: Pregunta por el código para jugar el kahoot de los verbos modales.<br>
 <a href="https://h5p.org/node/506174">Ejercicio 2</a> <br>
 <a href="https://h5p.org/node/506218">Ejercicio 3</a> <br>
 <br>
