@@ -1,7 +1,7 @@
 # Übungen zu den Modalverben poder, querer und tener que
 
 <a href="https://sh.edupool.de/search?func=playlist&standort=IQSH&list=3881">Video explicativo</a> sobre el uso de los verbos modales poder, querer und tener que <br>
-<a href="https://hirsch.next-cloud.org/index.php/s/FSmsg5dSxmxLH2F2">Hoja explicativa</a> sobre el uso de los verbos modales poder, querer und tener que <br>
+<a href="https://hirsch.next-cloud.org/index.php/s/FSmsg5dSxmxLH2F">Hoja explicativa</a> sobre el uso de los verbos modales poder, querer und tener que <br>
 
 
 Ejercicios para practicar el uso de los verbos ser, estar y hay.
