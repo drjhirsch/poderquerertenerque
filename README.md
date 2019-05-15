@@ -4,7 +4,7 @@
 <a href="https://hirsch.next-cloud.org/index.php/s/FSmsg5dSxmxLH2F">Hoja explicativa</a> sobre el uso de los verbos modales poder, querer und tener que <br>
 
 
-Ejercicios para practicar el uso de los verbos ser, estar y hay.
+Ejercicios para practicar el uso de los verbos poder, querer und tener que.
 <br>
 Ejercicio 1: Pregunta por el código para jugar el kahoot de los verbos modales.<br>
 <a href="https://h5p.org/node/506174">Ejercicio 2</a> <br>
